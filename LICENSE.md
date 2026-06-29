@@ -1,4 +1,4 @@
-#  
+#  smart escape tsunami for brainrots Scripts offers the most advanced escape tsunami for brainrots Script, with esp and unlimited stamina. Perfect for
 
 
 
